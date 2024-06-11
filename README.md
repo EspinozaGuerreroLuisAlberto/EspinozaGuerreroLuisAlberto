@@ -1,4 +1,4 @@
-p.
+
 .
 - 👋 Hi, I’m @EspinozaGuerreroLuisAlberto
 - 👀 I’m interested in ...
@@ -23,7 +23,7 @@ RR
 FRONTs 6LG DATE BIG DATA
 
 BigDate Luis Alberto Espinoza Guerrero
-Objects
+NASSa INFILTED Objects orientes 
 NASA
 
 National Aeronautics and Space Administration
@@ -113,8 +113,7 @@ BIG DATA CORP CAP COP GAP COMPANY
 By pelopedment creator Licensor
 criteria creator
 creative commons corporation
-Chapter 2 An Introduction to Linear deYoUpCase;cup
-
+Chapter 2 An Introduction to Linear programming 172flags in 60 LETTERS LOGO  or 56 LETRAS CREATOR LICENSOR CRITERIA BIGDATE creator Ordenator programm deYoUpCase;cup.transformarse.ads AT LAEG ESCRITURA PROYECTOS BIGDATE  CUB ADV .ABC. ADJ'S.
 
 { Big Data Corp Cap Cop Gap Company 
 60th languagues
