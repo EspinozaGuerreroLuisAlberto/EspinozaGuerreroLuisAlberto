@@ -19,7 +19,45 @@ Fabricante.
 EspinozaGuerreroLuisAlberto/EspinozaGuerreroLuisAlberto is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
-RR
+RR 
+ 1reoeATothArtievh 0T6EVETICA
+
+CINE 5OMono
+
+TELEVIS10N
+
+ATELITES Y CONTeD ReMoTO
+
+VALVULAS
+
+ELECTe05C0 P10
+
+MAGNETOFONJD
+
+APLCACIONES DELA EIECTRONICA,
+
+TRAVS1StoRES
+
+TOCA O1S0S
+
+COMPUTA 002ES
+
+COHETES
+
+TUSO FOTO ELECTnICo
+
+MCROSCoP1o ELECTeO NICO
+
+FOtD ETRO
+
+RAOAL
+
+0LIEMIE.LATE- MASTELn
+
+WCH27 XNa28 YS29
+
+Z RRBO 566051 ADC
+
 
 FRONTs 6LG DATE BIG DATA
 
